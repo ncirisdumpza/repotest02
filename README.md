@@ -6,3 +6,4 @@ I love :coffee:, :pizza:, and :dancer:.
 I love :football:.
 kuy
 
+i gay i gay i gay igay :women:,
